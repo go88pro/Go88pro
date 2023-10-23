@@ -1,16 +1,21 @@
-### Hi there 👋
+### Go88pro
 
-<!--
-**go88pro/Go88pro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Công ty giải trí Go88 đã chính thức bước vào thị trường giải trí tại Việt Nam và đang thu hút sự quan tâm đáng kể từ cộng đồng người chơi. Sứ mệnh của công ty là tạo ra hàng ngàn cơ hội việc làm cho người dân Việt Nam. Hơn nữa, trang web của họ cung cấp dịch vụ hỗ trợ khách hàng 24/24 để giúp đỡ người chơi khi gặp vấn đề hoặc cần câu trả lời cho các thắc mắc.
 
-Here are some ideas to get you started:
+Thông tin liên hệ:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Địa chỉ: 26 Đ. Lê Thị Riêng, Phường Phạm Ngũ Lão, Quận 1, Thành phố Hồ Chí Minh
+
+Email: info@go88pro.fun
+
+Website: https://go88pro.fun/
+
+Google map: https://maps.app.goo.gl/udm15EA3Rwku6h1h6
+
+#go88profun #go88 #go88pro
+
+https://www.youtube.com/channel/UCacFT31L0RbRzfAfVOf27_Q
+
+https://twitter.com/go88pro
+
+https://www.pinterest.com/go88profun/
